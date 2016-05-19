@@ -1,2 +1,2 @@
 
-# L'ÉDUCATION, SA NATURE ET SON RÔLE
+# L'éducation, sa nature et son rôle
