@@ -1,4 +1,4 @@
-## Pédagogie et sociologie
+## PÉDAGOGIE ET SOCIOLOGIE
 
 MESSIEURS,
 

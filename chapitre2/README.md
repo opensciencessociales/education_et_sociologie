@@ -1,4 +1,4 @@
-## Nature et méthode de la pédagogie
+## NATURE ET MÉTHODE DE LA PÉDAGOGIE
 
 On a souvent confondu les deux mots d'éducation et de pédagogie, qui demandent pourtant à être soigneusement distingués.
 
