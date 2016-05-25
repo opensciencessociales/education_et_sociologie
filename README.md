@@ -5,7 +5,7 @@ Cette édition électronique a été établie à partir du livre d’**Émile Du
 
 L'ouvrage est désormais dans le domaine public.
 
-Cette version peut contenir des erreurs de numérisation. Vous pouvez suggérer des corrections directement sur [Github](https://github.com/opensciencessociales/education_et_sociologie)
+Cette version peut contenir des erreurs de numérisation. Vous pouvez suggérer des corrections directement sur [Github](https://github.com/opensciencessociales/education_et_sociologie).
 
 ## Voir aussi
 
